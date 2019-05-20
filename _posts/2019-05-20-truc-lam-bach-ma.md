@@ -21,7 +21,7 @@ Nhưng không:
 *Liễu ám hoa minh biệt nhất thôn.*
 *(Liễu biếc, hoa tươi riêng một thôn).*
 
-là đến đập Truồi, Thiền viện nằm giữa lòng hồ, cách chân đập khoảng 500m (có đò đưa sang)
+Là đến đập Truồi, Thiền viện nằm giữa lòng hồ, cách chân đập khoảng 500m (có đò đưa sang)
 
 
 <figure><iframe width="650" height="400" src="//www.youtube-nocookie.com/embed/kcxsynKHeNw" frameborder="0" allowfullscreen></iframe></figure>
