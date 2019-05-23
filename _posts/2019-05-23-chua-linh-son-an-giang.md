@@ -3,11 +3,12 @@ title: Chùa Linh Sơn - Ba Thê
 image: chua-linh-son.jpg
 ---
 
-Chùa đẹp nổi tiếng An Giang nhé các ban!!!
 
-![ten buc hinh](https://dailytravelvietnam.com/vi/images/2016/02/chua-linh-son-ba-the-an-giang1-700x457.jpg "ten buc hinh")
+
 
 Chùa Linh Sơn (Ba Thê) còn được gọi là chùa Phật bốn tay núi Ba Thê, tọa lạc tại xã Vọng Thê (nay là thị trấn Óc Eo), huyện Thoại Sơn, tỉnh An Giang, Việt Nam. Đây là một di tích cấp quốc gia, và là một trong những địa điểm hành hương nổi tiếng của tỉnh.
+
+![ten buc hinh](https://dailytravelvietnam.com/vi/images/2016/02/chua-linh-son-ba-the-an-giang1-700x457.jpg "ten buc hinh")
 
 **Lịch sử chùa**
 

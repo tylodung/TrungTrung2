@@ -4,11 +4,12 @@ image: hoi-an.jpg
 ---
 
 Ngôi chùa đầu tiên được xây dựng tại thành phố mới Bình Dương.
+
 Tên gọi của chùa Hội An mang ý nghĩa của sự quy tụ bao điều an lành của cuộc sống về một sự phát triển không ngừng của thành phố mới Bình Dương.
 
 ![ten buc hinh](https://lh3.googleusercontent.com/_uEFIzy9jzzcs_d33xttqtBo6qcZSPkEo5iWJ1mBRxTCqojmPdbAtymOK63QbZhuOSCkXZpJyTE-yN4s2O4=w391-h220-rw "ten buc hinh")
 
-**Địa chỉ:** Phó Cơ Điều, Hòa Phú, Tp. Thủ Dầu Một, Bình Dương
+Địa chỉ: **Phó Cơ Điều, Hòa Phú, Tp. Thủ Dầu Một, Bình Dương**
 
 Ngôi chùa được xây dựng giữ nguyên kiến trúc đặc thù của những ngôi chùa ở Nam bộ, theo lối trùng thềm. Không gian kiến trúc tổng thể bao gồm: tiền điện, chánh điện, hậu tổ, giảng đường, đông lang và tây lang. Tuy nhiên, ngôi chùa có sự phá cách khi kết cấu gồm 1 trệt, 1 lầu. Bao quanh khuôn viên chùa là hệ thống cây xanh tạo bóng mát cho người dân thưởng ngoạn, nghỉ ngơi. Ngoài ra, trong khuôn viên bên trái chùa còn an vị tượng Phật nhập niết bàn với tên gọi là “Kì lam ngọc Phật” được làm bằng đá sapphire một loại đá quý có từ hàng triệu năm.. Tượng Phật nhập Niết bàn bằng đá sapphire của chùa Hội An (Bình Dương) đã được xác lập kỷ lục lớn nhất Việt Nam.
 
