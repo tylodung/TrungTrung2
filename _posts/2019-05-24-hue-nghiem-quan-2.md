@@ -1,5 +1,5 @@
 ---
-title: Chùa Huê Nghiêm TPHCM
+title: Chùa Huê Nghiêm ở Sài Gòn
 image: heu-nghiem.jpg
 ---
 

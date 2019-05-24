@@ -7,17 +7,18 @@ Thiền viện Vạn Hạnh Thiền viện tọa lạc tại số 750 đường 
 
 ![ten buc hinh](http://www.vncgarden.com/_/rsrc/1306056859582/di-tich-danh-thang/chuavietnam-xuavanay/tp-ho-chi-minh/thien-vien-van-hanh/370-Tam%20quan.jpg "ten buc hinh")
 
-![ten buc hinh](http://www.vncgarden.com/_/rsrc/1306056888136/di-tich-danh-thang/chuavietnam-xuavanay/tp-ho-chi-minh/thien-vien-van-hanh/370-Mat%20tien%201996.jpg "ten buc hinh")
-
-![ten buc hinh](http://www.vncgarden.com/_/rsrc/1306056919037/di-tich-danh-thang/chuavietnam-xuavanay/tp-ho-chi-minh/thien-vien-van-hanh/370-Mat%20tien.jpg "ten buc hinh")
 
 Tên thường gọi: Thiền viện Vạn Hạnh
 
-Thiền viện tọa lạc tại số 750 đường Nguyễn Kiệm, phường 4, quận Phú Nhuận, TP. Hồ Chí Minh. ĐT: 08.8450794. Chùa thuộc hệ phái Bắc tông.
+Thiền viện tọa lạc tại số **750 đường Nguyễn Kiệm, phường 4, quận Phú Nhuận, TP. Hồ Chí Minh**. ĐT: 08.8450794. Chùa thuộc hệ phái Bắc tông.
+
+![ten buc hinh](http://www.vncgarden.com/_/rsrc/1306056888136/di-tich-danh-thang/chuavietnam-xuavanay/tp-ho-chi-minh/thien-vien-van-hanh/370-Mat%20tien%201996.jpg "ten buc hinh")
 
 Trước năm 1975, nơi đây là Phân khoa Khoa học Ứng dụng thuộc Viện Đại học Vạn Hạnh Sài Gòn do Hòa thượng Tiến sĩ Thích Minh Châu làm Viện trưởng. Năm 1976, Hòa thượng đã tạo lập thiền viện làm nơi tu trì, nghiên cứu Phật học.
 
 Trong khuôn viên thiền viện, hiện đặt văn phòng Viện nghiên cứu Phật học Việt Nam, Trường cao cấp Phật học Việt Nam (nay là Học viện Phật giáo Việt Nam tại TP. Hồ Chí Minh), văn phòng Hội đồng phiên dịch kinh Đại Tạng Việt Nam. Đến nay đã dịch và ấn hành 36 tập thuộc kinh điển Pali và A-hàm.
+
+![ten buc hinh](http://www.vncgarden.com/_/rsrc/1306056919037/di-tich-danh-thang/chuavietnam-xuavanay/tp-ho-chi-minh/thien-vien-van-hanh/370-Mat%20tien.jpg "ten buc hinh")
 
 Tam quan thiền viện được xây dựng năm 1990 theo kiểu kiến trúc cổ Phật giáo ở Huế do hai Đại đức Tâm Đoan và Tịnh Quang đảm trách.
 
